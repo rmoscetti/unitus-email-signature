@@ -1,1 +1,1 @@
-Email signature for accademic use
+Email signature for accademic use.
