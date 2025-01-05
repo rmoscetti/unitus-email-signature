@@ -1,1 +1,1 @@
-My personal email signature
+Email signature for accademic use
